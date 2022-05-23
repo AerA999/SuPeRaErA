@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SuPeRaErA
+- 👋 Hi, I’m @AeRa
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning how to code
 - 📫 How to reach me - aerajain29@gmail.com
